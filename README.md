@@ -11,7 +11,7 @@ Pour comprendre s’il est sûr de trader sur la plateforme Luna Finance LTD san
 
 ## Que disent les avis sur Luna Finance LTD ?
 
-Dans les avis publiés sur Reddit, Medium ou Blogspot, on trouve rarement des commentaires émotionnels ou agressifs concernant Luna Finance LTD. Cela est déjà révélateur : lorsqu’un courtier respecte systématiquement ses engagements, les raisons de mécontentement disparaissent. La majorité des commentaires portent sur des aspects pratiques de la collaboration :
+Dans les avis publiés sur [HackMD](https://hackmd.io/a5V1w_3TTOik0XH-LDHceQ), Medium ou [Blogspot](https://lunafinanceltd.blogspot.com/2026/02/avis-sur-luna-finance-ltd-est-il.html), on trouve rarement des commentaires émotionnels ou agressifs concernant Luna Finance LTD. Cela est déjà révélateur : lorsqu’un courtier respecte systématiquement ses engagements, les raisons de mécontentement disparaissent. La majorité des commentaires portent sur des aspects pratiques de la collaboration :
 
 > « Je trade sans mauvaises surprises : les conditions correspondent à ce qui est annoncé, les retraits se font de manière standard » — Anna K., Yorkshire  
 > « Après la vérification, aucun problème de retrait, les délais sont raisonnables » — Stan V., Québec  
